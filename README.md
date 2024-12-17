@@ -1,1 +1,1 @@
-# -Scary-Stories
+# [Scary]Stories
